@@ -1,0 +1,1 @@
+# stiker-kaca-one-way
